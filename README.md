@@ -2,7 +2,7 @@
 
 # FREE 
 
-#FOR ONLY BANGLADESH 
+# ONLY BANGLADESH CODE
 
 # -----------------------
 
